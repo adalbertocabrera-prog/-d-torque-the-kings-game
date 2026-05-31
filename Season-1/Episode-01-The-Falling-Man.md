@@ -17,3 +17,12 @@ The victim was trying to warn someone.
 
 Conclusion:
 The message connects to Victor Hale.
+
+# Case 03: The Missing Witness
+
+A witness disappeared before testimony.
+
+D. Torque found evidence the disappearance was planned.
+
+Conclusion:
+Someone powerful is covering tracks.
