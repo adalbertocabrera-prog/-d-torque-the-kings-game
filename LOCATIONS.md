@@ -1,8 +1,8 @@
-# Locations
+# LOCATIONS
 
-- The Field
-- Harbor Warehouse
-- Abandoned Hotel
-- Hale Industries
+- Harbor District
+- Room 308 Hotel
+- Hale Industries Headquarters
+- King's Manor
+- Riverside Field
 - Police Headquarters
-- The King's Chamber
