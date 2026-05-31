@@ -1,0 +1,107 @@
+# Episode 6: The King's Game
+
+For months, Detective D. Torque had chased mysteries that seemed unrelated.
+
+The Falling Man.
+
+The Coffee Cup.
+
+The Missing Witness.
+
+The Warehouse Fire.
+
+The Silent Phone.
+
+Five cases.
+
+Five victims.
+
+Five secrets.
+
+But every investigation revealed the same symbol.
+
+The same hidden network.
+
+The same shadow looming over every crime.
+
+Victor Hale.
+
+Publicly, Hale was a respected businessman.
+
+Privately, he controlled a criminal empire built on corruption, blackmail, and murder.
+
+D. Torque spread photographs, reports, witness statements, and evidence across his investigation board.
+
+The pattern was finally clear.
+
+Every victim had discovered a piece of Hale's operation.
+
+Each one had been silenced before they could expose the truth.
+
+But Hale made one mistake.
+
+He underestimated D. Torque.
+
+Using evidence gathered from all five cases, Torque convinced a judge to issue warrants.
+
+Police raided multiple properties connected to Hale.
+
+Documents were seized.
+
+Accounts were frozen.
+
+Associates were arrested.
+
+But Hale escaped.
+
+A citywide search began.
+
+The hunt ended at Hale's private estate overlooking the coast.
+
+There, surrounded by security guards and locked gates, Hale waited.
+
+He knew the game was over.
+
+When D. Torque entered the estate, Hale smiled.
+
+"You've been chasing ghosts for months."
+
+Torque replied calmly.
+
+"No. I've been chasing you."
+
+Hale laughed.
+
+"You think removing me changes anything?"
+
+Torque stepped closer.
+
+"It changes everything."
+
+Police moved in.
+
+Hale attempted to flee.
+
+He was arrested before reaching the gate.
+
+With Hale in custody, the entire organization collapsed.
+
+The families of the victims finally received justice.
+
+The symbol that had haunted every investigation became evidence in the largest criminal case in the city's history.
+
+As reporters gathered outside the courthouse, a detective asked Torque a question.
+
+"How did you solve it?"
+
+Torque looked at the evidence board one last time.
+
+"The truth was always there."
+
+He removed the final photo.
+
+"You just had to connect the pieces."
+
+CASE CLOSED
+
+SEASON 1 COMPLETE
